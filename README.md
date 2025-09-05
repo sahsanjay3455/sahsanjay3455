@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sahsanjay3455@gmail.com**
 
-- ⚡ Fun fact **Death has NO Calendar**
+- ⚡ Real fact **Death has NO Calendar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
